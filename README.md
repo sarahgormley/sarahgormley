@@ -18,7 +18,6 @@
 - 💬 Ask me about my parrot! :parrot:
 - 📫 How to reach me <a href="mailto:sarah.gormley39@gmail,com?Subject=Hello"> Email Me </a> |  <a href="https://www.linkedin.com/in/sarah-gormley/">LinkedIn</a> 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love Paddle Boarding! :surfing_woman:
 
 ### :hammer_and_wrench: Languages and Tools:
 <div>
